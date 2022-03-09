@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Filosidis Giannis
+- 👀 I’m interested for work 
+- 🌱 I’m currently learning Msc in Cultural Informatics and Communication University Of The Aegean with direction in Design of digital and cultural products
+- 📫 Email : Giannhsfil@hotmail.com
